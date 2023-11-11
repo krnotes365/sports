@@ -1,4 +1,4 @@
-# Tips for Stadium Visit
+# Tips for Cricket Stadium Visit
 
 Are you going to watch a Cricket Match for the 1st time at Cricket Stadium?  There here are some tips I have collected from regular folks who goto stadium.
 
